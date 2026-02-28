@@ -35,7 +35,7 @@ ${\huge\textsf{\color{yellow} INTERESTS}}$
 
   
 <details>
-  <summary>${\huge\textsf{\color{yellow}fandom!}}$ </summary>
+  <summary>${\small\textsf{\color{yellow}fandom!}}$ </summary>
 
 - hi-fi rush
 - minecraft
@@ -68,7 +68,7 @@ ${\huge\textsf{\color{yellow} INTERESTS}}$
  <div align="left">
   <details>
     <summary>
-${\huge\textsf{\color{yellow} characters!}}$ </summary>
+${\small\textsf{\color{yellow} characters!}}$ </summary>
     <p align="left">
     
 noli (every version of noli especially hello john doe) |charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
@@ -80,7 +80,7 @@ noli (every version of noli especially hello john doe) |charles(henry stickmin) 
 
 <div align="left">
   <details>
-    <summary>${\huge\textsf{\color{yellow} gamez}}$ 
+    <summary>${\small\textsf{\color{yellow} gamez}}$ 
 </summary>
     <p align="left">
 Puppeteer | Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon  | minecraft | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats .
@@ -89,7 +89,7 @@ Puppeteer | Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | 
 
  <div align="left">
   <details>
-    <summary> ![Image](https://github.com/user-attachments/assets/9843513b-535d-40ce-92be-36e7d3ab3fe6) ${\huge\textsf{\color{yellow} gamez}}$</summary>
+    <summary> ![Image](https://github.com/user-attachments/assets/9843513b-535d-40ce-92be-36e7d3ab3fe6) ${\small\textsf{\color{yellow} gamez}}$</summary>
     <p align="left">
     IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREDDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto) , hi-fi rush osts , forsaken osts , minecraft osts .
     </p>
