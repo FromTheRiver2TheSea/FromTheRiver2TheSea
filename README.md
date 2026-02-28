@@ -35,7 +35,7 @@ ${\huge\textsf{\color{yellow} INTERESTS}}$
 
   
 <details>
-  <summary> ![Image](https://github.com/user-attachments/assets/60c211c2-15ba-4e78-b0f5-d8257e049375) ${\huge\textsf{\color{yellow}fandom!}}$ </summary>
+  <summary>${\huge\textsf{\color{yellow}fandom!}}$ </summary>
 
 - hi-fi rush
 - minecraft
@@ -67,7 +67,7 @@ ${\huge\textsf{\color{yellow} INTERESTS}}$
 
  <div align="left">
   <details>
-    <summary>![Image](https://github.com/user-attachments/assets/978cdbf5-c050-409a-a198-36d4625a8e4c)
+    <summary>
 ${\huge\textsf{\color{yellow} characters!}}$ </summary>
     <p align="left">
     
@@ -119,8 +119,7 @@ Puppeteer | Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | 
 
 anywayz. Byeee!
 
-<img width="1280" height="426" alt="Image" src="https://github.com/user-attachments/assets/d38c1a22-1a26-4035-a0c0-6943d107aca0" />
-
+<img width="1280" height="429" alt="Image" src="https://github.com/user-attachments/assets/07edc513-2b12-445a-a34c-22b3aeef3bb1" />
 
 
 
