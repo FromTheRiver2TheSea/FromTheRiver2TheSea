@@ -1,13 +1,13 @@
-<img width="1280" height="426" alt="Image" src="https://github.com/user-attachments/assets/7e832b91-d643-4fda-8217-62eb719e8fea" />
+<img width="960" height="383" alt="Image" src="https://github.com/user-attachments/assets/12adb64f-6411-411b-a337-8a7e38db30b9" />
 
   <div align="center">
   ![free](https://img.shields.io/badge/free%20-palestine-darkred)
   
-<img width="736" height="368" alt="Image" src="https://github.com/user-attachments/assets/95d67d55-56e1-49c2-8efe-e04a3a56a979" />
+![Image](https://github.com/user-attachments/assets/a0817cd2-1395-477e-b401-9c78465628a6)
 
   <div align="center">
 
-![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&size=30&width=500&lines=The+darkness+isnt+empty...;Its+just+waiting+for+you.&color=2A0066)
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&size=30&width=500&lines="Am...;...sorry".&color=FFA042)
 
 ${\huge\textsf{\color{purple} HEY THERE !1!}}$ 
 
@@ -103,15 +103,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
   </details>
 
 
- <img src="https://github.com/user-attachments/assets/2f032071-d5da-41bf-b735-725e4695a87e" width="20" style="vertical-align:middle;" /> I DONT CARE WHAT YOU THINK , ![Image](https://github.com/user-attachments/assets/5f384fa9-5455-464c-ad59-0dc3ec857fb5)
- <img src="https://github.com/user-attachments/assets/6a32ad5c-4292-4c5f-8b51-6ddf081d6664" align="left" width="100">!!!   
-
  
-  
-
-  <div align="center">
-
-<img width="400" height="32" alt="Image" src="https://github.com/user-attachments/assets/abab1ef7-58b7-4859-bfe0-6be88a86eb45" />
 
 
 
@@ -123,8 +115,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 ![Image](https://github.com/user-attachments/assets/b00f784f-aff7-488e-9a5b-61acca2ed760)
 
 
-<img width="1280" height="426" alt="Image" src="https://github.com/user-attachments/assets/d38c1a22-1a26-4035-a0c0-6943d107aca0" />
-
+<img width="960" height="383" alt="Image" src="https://github.com/user-attachments/assets/02bbf438-98c6-4c4c-a9da-f3f86317d8f7" />
 
 
 
