@@ -6,7 +6,7 @@
 ![Image](https://github.com/user-attachments/assets/456bab12-460d-4be3-ad8a-3efac76b27d2)
   <div align="center">
 
-![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&size=30&width=500&lines="Am...;...sorry".&color=#90D5FF)
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&size=30&width=500&lines="Remember+Me+In+Your...;...Dreams".&color=#90D5FF)
 
 ${\huge\textsf{\color{#90D5FF} HEY THERE !1!}}$ 
 
@@ -114,7 +114,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 ![Image](https://github.com/user-attachments/assets/b00f784f-aff7-488e-9a5b-61acca2ed760)
 
 
-<img width="400" height="128" alt="Image" src="https://github.com/user-attachments/assets/c48a4f7b-d48a-4db4-a9ab-2823ceb07d80" />
+<img width="1200" height="1200" alt="Image" src="https://github.com/user-attachments/assets/c48a4f7b-d48a-4db4-a9ab-2823ceb07d80" />
 
 
 
