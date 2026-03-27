@@ -127,7 +127,5 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 <<img width="1280" height="294" alt="Image" src="https://github.com/user-attachments/assets/ad31fed4-e7c5-4a61-8e1c-a16cca31f5ea" />
 
-
-
-
+Joker want smth [ ! ](https://github.com/FromTheRiver2TheSea/WTH-WHY-IS-JOKER-HERE)
 
