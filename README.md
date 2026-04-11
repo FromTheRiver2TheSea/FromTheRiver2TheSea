@@ -6,7 +6,7 @@
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Courier+New&weight=700&size=30&pause=1000&color=E30022&center=true&vCenter=true&width=600&lines=+...;Welcome!;Please+stay+in+your+seat...;Everything+is+okay.)
 
 
-<img align="left" width="100" src="https://github.com/user-attachments/assets/a15d070f-1803-48d6-9616-201659cc76b7"> Hiiiii !!! Am sakura i also go by spwan . Am She/Her but i dont mind anything ! 5teen !1!1! (Dude @ilyyatta  is so cool help?) 
+<img align="left" width="100" src="https://github.com/user-attachments/assets/a15d070f-1803-48d6-9616-201659cc76b7"> Hiiiii !!! Am sakura i also go by spwan . Am She/Her but i dont mind anything ! 5teen !1!1! 
 
 
 <img align="left" width="100" hspace="20" src="https://github.com/user-attachments/assets/edf16454-651d-4c97-9239-1742e47d8466">c+h /int freely !!! Am kinda shy thats why i dont talk to alot of ppl !! ADHD and alot of problems with my memory . English Is NOT my first language . I may upset ppl But I DONT MEAN IT PLZ TELL ME AM SO SO SO SO SO SO SO SO SORRY ..
