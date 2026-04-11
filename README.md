@@ -51,6 +51,6 @@ I LOVE elizabeth and i Hvy kin her :3 . I have alot of other kins like chalres c
 ![Image](https://github.com/user-attachments/assets/5f2baf0e-bf9b-4c9f-8cea-5bc526d2492a)
 ![Image](https://github.com/user-attachments/assets/7e9f2735-b42f-453a-8c29-597d41fd52a8)
 ![Image](https://github.com/user-attachments/assets/85b50b43-a292-4180-8fbe-0da0db46b2dc)
-![Image](https://github.com/user-attachments/assets/73e9d42e-860a-42e2-91f4-58a450040913)![Image](https://github.com/user-attachments/assets/20783be3-5b36-4f72-9821-ee58793d5d99)[Image](https://github.com/user-attachments/assets/4506fcb2-382a-4b25-97a8-2b6e9e2d602f)
+![Image](https://github.com/user-attachments/assets/73e9d42e-860a-42e2-91f4-58a450040913)![Image](https://github.com/user-attachments/assets/20783be3-5b36-4f72-9821-ee58793d5d99)![Image](https://github.com/user-attachments/assets/4506fcb2-382a-4b25-97a8-2b6e9e2d602f)
 
 
