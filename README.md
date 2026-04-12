@@ -1,7 +1,7 @@
 <img width="1000" height="160" alt="Image" src="https://github.com/user-attachments/assets/c72cb49c-fe09-42d9-abce-d415b1204a64" />
 
 
-![Image](https://github.com/user-attachments/assets/7ab1dec8-b10c-4636-b2f7-d48b3baf1363)
+<img width="3364" height="3908" alt="Image" src="https://github.com/user-attachments/assets/753a4b2d-1215-4522-bf03-5a98d65f5a09" />
 
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Courier+New&weight=700&size=30&pause=1000&color=E30022&center=true&vCenter=true&width=600&lines=+...;Welcome!;Please+stay+in+your+seat...;Everything+is+okay.)
 
