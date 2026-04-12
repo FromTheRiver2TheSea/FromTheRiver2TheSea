@@ -1,3 +1,5 @@
+<p align="center">
+
 <img width="1000" height="160" alt="Image" src="https://github.com/user-attachments/assets/c72cb49c-fe09-42d9-abce-d415b1204a64" />
 
 
@@ -9,7 +11,7 @@
 <img align="left" width="100" src="https://github.com/user-attachments/assets/a15d070f-1803-48d6-9616-201659cc76b7"> Hiiiii !!! Am sakura i also go by spwan . Am She/Her but i dont mind anything ! 5teen !1!1! 
 
 
-<img align="left" width="100" hspace="20" src="https://github.com/user-attachments/assets/edf16454-651d-4c97-9239-1742e47d8466">c+h /int freely !!! Am kinda shy thats why i dont talk to alot of ppl !! ADHD and alot of problems with my memory . English Is NOT my first language . I may upset ppl But I DONT MEAN IT PLZ TELL ME AM SO SO SO SO SO SO SO SO SORRY ..
+<img align="left" width="100" hspace="20" src="https://github.com/user-attachments/assets/edf16454-651d-4c97-9239-1742e47d8466">c+h /int freely !!! Am kinda shy thats why i dont talk to alot of ppl !! ADHD and alot of problems with my memory . English Is NOT my first language . I may upset ppl But I DONT MEAN IT PLZ TELL ME AM SO SO SO SO SO SO SO SO SORRY . i <3 all my friend ! 
 
 <img width="1280" height="171" alt="Image" src="https://github.com/user-attachments/assets/1c32680e-4636-4c20-b4be-0d71a47af2e0" />
 
