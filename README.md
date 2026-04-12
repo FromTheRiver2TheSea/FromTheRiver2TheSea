@@ -13,6 +13,8 @@
 
 <img align="left" width="100" hspace="20" src="https://github.com/user-attachments/assets/edf16454-651d-4c97-9239-1742e47d8466">c+h /int freely !!! Am kinda shy thats why i dont talk to alot of ppl !! ADHD and alot of problems with my memory . English Is NOT my first language . I may upset ppl But I DONT MEAN IT PLZ TELL ME AM SO SO SO SO SO SO SO SO SORRY . i <3 all my friend ! 
 
+
+I was a fan of FNAF since the being , but am also a fan of other things ! DW , forsaken , hi-fi rush , sonic.exe , bad things , Let Him Go , Transformars , GOTG , dod and more that i forgor the name of 
 <img width="1280" height="171" alt="Image" src="https://github.com/user-attachments/assets/1c32680e-4636-4c20-b4be-0d71a47af2e0" />
 
 <p align="center">
