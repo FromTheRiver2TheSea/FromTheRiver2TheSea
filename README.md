@@ -6,6 +6,10 @@
 
 <img width="540" height="362" alt="Image" src="https://github.com/user-attachments/assets/edbdd11e-5790-4d29-a428-3599211a73b1" />
 
+<div align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Courier+Prime&weight=700&size=35&pause=1000&color=D32F2F&center=true&vCenter=true&width=600&lines=Gotta+get+back...;Back+to+the+past...;Samurai+Jack." alt="Typing Animation" />
+</div>
+
 <img width="1280" height="141" alt="Image" src="https://github.com/user-attachments/assets/8406206c-1918-491d-a8ec-f1e5a02f830e" />
 
 
