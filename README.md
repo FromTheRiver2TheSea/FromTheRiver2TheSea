@@ -15,7 +15,6 @@
 
 [Strawpage](https://the-batman-lego-movie.straw.page/)𓂃 𓈒𓏸[atabook](https://n0l1voidstar.atabook.org/)
 
-<img width="570" height="904" alt="Image" src="https://github.com/user-attachments/assets/1fb238e4-6af9-401f-b1a1-ffdb5dbd9cba" />
 
 
 <img width="1024" height="330" alt="Image" src="https://github.com/user-attachments/assets/3bdcc4cb-b31c-40a3-ac26-6e055c72fc3d" />
