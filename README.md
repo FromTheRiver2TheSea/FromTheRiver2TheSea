@@ -4,7 +4,7 @@
 
 <img width="1280" height="831" alt="Image" src="https://github.com/user-attachments/assets/88e23b1e-6643-44cb-89af-d5b3443dad4e" />
 
-[Strawpage](https://the-batman-lego-movie.straw.page/)𓂃 𓈒𓏸[atabook](https://n0l1voidstar.atabook.org/)
+[Strawpage](https://the-batman-lego-movie.straw.page/)𓂃 𓈒𓏸[atabook](https://n0l1voidstar.atabook.org/)𓂃 𓈒𓏸[pronouns](https://en.pronouns.page/@kutaro)
 
 <img width="200" height="130" alt="Image" src="https://github.com/user-attachments/assets/8fce7949-e7aa-44fc-825a-b37fadd4e649" />
 
