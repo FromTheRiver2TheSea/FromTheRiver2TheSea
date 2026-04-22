@@ -1,24 +1,14 @@
 <div align="center">
-  
+
+<img width="1280" height="429" alt="Image" src="https://github.com/user-attachments/assets/15952698-7a1b-419e-95eb-1ca56d745cf3" />
 
 
-<img width="1280" height="330" alt="Image" src="https://github.com/user-attachments/assets/2b3b9986-978a-4912-ba71-2790df170462" />
-
-<img width="540" height="362" alt="Image" src="https://github.com/user-attachments/assets/edbdd11e-5790-4d29-a428-3599211a73b1" />
-
-<div align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Courier+Prime&weight=700&size=35&pause=1000&color=D32F2F&center=true&vCenter=true&width=600&lines=Gotta+get+back...;Back+to+the+past...;Samurai+Jack." alt="Typing Animation" />
-</div>
-
-
-<img width="654" height="200" alt="Image" src="https://github.com/user-attachments/assets/79dc6b29-67f1-452c-8984-ee799fb0e829" />
+<img width="1280" height="831" alt="Image" src="https://github.com/user-attachments/assets/88e23b1e-6643-44cb-89af-d5b3443dad4e" />
 
 [Strawpage](https://the-batman-lego-movie.straw.page/)𓂃 𓈒𓏸[atabook](https://n0l1voidstar.atabook.org/)
 
+<img width="1280" height="427" alt="Image" src="https://github.com/user-attachments/assets/b1061263-4abb-41e9-baaf-aacf15c4673a" />
 
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/86e5592a-ec02-480a-ac2f-80a3845f4f0d" />
 
-<img width="1024" height="330" alt="Image" src="https://github.com/user-attachments/assets/3bdcc4cb-b31c-40a3-ac26-6e055c72fc3d" />
-
-<img width="615" height="461" alt="Image" src="https://github.com/user-attachments/assets/85292d5b-7019-4c06-a90e-f2491d0ae43b" />
-<img width="615" height="461" alt="Image" src="https://github.com/user-attachments/assets/e10db457-9e36-46b6-b46f-379ea96dd1c9" />
-
+##BYI
