@@ -19,3 +19,6 @@
 <img align="left" width="130" height="160" src="https://github.com/user-attachments/assets/e2a85e7c-cb9b-4573-88de-5fc93eef6d13">
 
 Call me sakura/spawn . C+h freely , Int also . I have ADHD and have a lot of problems with my memory . Am kinda shy soo i wont come and talk to you unless i know u , am sorry . Sometimes i well but prop not . ENGLISH ISNT MY FIRST LANGUAGE . Dni if ur a proshipper and things like this plz or support AI and israel . tell me if am following someone bad Plzzz . LOVE ALL MY FRIENDS X3 . i almost take nothing seriously unsless its very very serious, soo am kinda sillyy
+
+<img width="450" height="253" alt="Image" src="https://github.com/user-attachments/assets/111be6d4-2552-4714-8e25-ca53b6442de1" />
+I <3 starlord
