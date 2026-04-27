@@ -7,11 +7,13 @@
   <img src="https://readme-typing-svg.demolab.com?font=Courier+New&weight=700&size=35&duration=2000&pause=500&color=FF00FF&center=true&vCenter=true&width=500&lines=LETS+P4RTY!;RAWR+XD!;X3_X3_X3" alt="Typing SVG" />
 </div>
 
-[Straw](https://the-batman-lego-movie.straw.page/)$\color{FF00FF}{\textsf{Page!}}$  ☆ ★ ✮ ★ ☆
+[Straw](https://scenexd.straw.page/)$\color{FF00FF}{\textsf{Page!}}$  ☆ ★ ✮ ★ ☆
 
 &emsp;&emsp;&emsp; [ata](https://n0l1voidstar.atabook.org/)$\color{39FF14}{\textsf{book}}$
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[Pro](https://en.pronouns.page/@Kutaro)$\color{9D00FF}{\textsf{nouns}}$ 
+
+[r](https://rentry.co/abouutmeee)$\color{39FF14}{\textsf{entry}}$
 
 [Daily](https://arab.org/click-to-help/palestine/)$\color{39FF14}{\textsf{click}}$
 
