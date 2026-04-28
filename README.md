@@ -4,7 +4,7 @@
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/d22f994b-a254-43a5-81df-90a294c25747" />
 
 
-  <img src="https://readme-typing-svg.demolab.com?font=Courier+New&weight=700&size=35&duration=2000&pause=500&color=FF00FF&center=true&vCenter=true&width=500&lines=LETS+P4RTY!;RAWR+XD!;X3_X3_X3" alt="Typing SVG" />
+  <img src="https://readme-typing-svg.demolab.com?font=Courier+New&weight=700&size=35&duration=2000&pause=500&color=FF00FF&center=true&vCenter=true&width=500&lines=sweet+as+suger...;hard+as+ice;hurt+me+once...;i+will+kill+u+twice+:D!!" alt="Typing SVG" />
 </div>
 
 [Straw](https://scenexd.straw.page/)$\color{FF00FF}{\textsf{Page!}}$  ☆ ★ ✮ ★ ☆
