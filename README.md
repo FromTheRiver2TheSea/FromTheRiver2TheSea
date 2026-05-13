@@ -26,7 +26,7 @@
 
 <img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/f660ffa9-dd9d-4680-9ef3-deeb80ca2ecd" /><h1 align="center">★ BYI </h1>
 
-•⩊• Call me sakura/spawn ! C+h freely and Int !!  I have ADHD and have a lot of problems with my memory . Am kinda shy soo i wont come and talk to you unless i know u  , Sometimes i well but prop not . ENGLISH ISNT MY FIRST LANGUAGE . Dni if ur a proshipper and things like this OR support AI and israel . tell me if am following bad ppll. LOVE ALL MY FRIENDS X3 . i almost take nothing seriously unsless its very very serious, soo am kinda sillyy ( ˶°ㅁ°) !!
+•⩊• Call me sakura/spawn ! C+h freely and Int !! ADHD and have a lot of problems with my memory . Am kinda shy soo i wont come and talk to you unless i know u  , Sometimes i well but prop not . ENGLISH ISNT MY FIRST LANGUAGE. tell me if am following bad ppl. LOVE ALL MY FRIENDS X3 . i almost take nothing seriously unsless its very very serious, soo am kinda sillyy ( ˶°ㅁ°) !!
 
 <img width="1280" height="286" alt="Image" src="https://github.com/user-attachments/assets/e6263cc0-8563-49f9-a100-b16dcc408cfa" />
 
