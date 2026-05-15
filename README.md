@@ -12,7 +12,7 @@
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[Pro](https://en.pronouns.page/@Kutaro)$\color{9D00FF}{\textsf{nouns}}$ 
 
-[r](https://rentry.co/abouutmeee)$\color{39FF14}{\textsf{entry}}$
+[r](https://https://rentry.co/hiby3)$\color{39FF14}{\textsf{entry}}$
 
 [Daily](https://arab.org/click-to-help/palestine/)$\color{39FF14}{\textsf{click}}$
 
