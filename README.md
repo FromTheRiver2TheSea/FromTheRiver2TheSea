@@ -1,37 +1,8 @@
 <div align="center">
+<img width="1280" height="238" alt="Image" src="https://github.com/user-attachments/assets/6b3676b0-439b-4524-b723-65c5c6a853b7" />
 
-<img width="1280" height="427" alt="Image" src="https://github.com/user-attachments/assets/2750f383-7182-4ba3-b497-359f313bb4ed" />
-<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/d22f994b-a254-43a5-81df-90a294c25747" />
+<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/5a3505f8-8261-4d98-887c-a2ddbd1f4655" />
 
-  <img src="https://readme-typing-svg.demolab.com?font=Courier+New&weight=700&size=35&duration=2000&pause=500&color=FF00FF&center=true&vCenter=true&width=500&lines=sweet+as+suger...;hard+as+ice;hurt+me+once...;i+will+kill+u+twice+:D!!" alt="Typing SVG" />
-</div>
+[Straw](https://the-batman-lego-movie.straw.page/)$\color{A76250}{\textsf{Page}}$ .ᐟ [ata](https://n0l1voidstar.atabook.org/)$\color{A76250}{\textsf{book}}$ ⸝⸝ [r](https://rentry.co/hiby3)$\color{A76250}{\textsf{entry}}$
 
-[Straw](https://scenexd.straw.page/)$\color{FF00FF}{\textsf{Page!}}$  ☆ ★ ✮ ★ ☆
-
-&emsp;&emsp;&emsp; [ata](https://n0l1voidstar.atabook.org/)$\color{39FF14}{\textsf{book}}$
-
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[Pro](https://en.pronouns.page/@Kutaro)$\color{9D00FF}{\textsf{nouns}}$ 
-
-[r](https://rentry.co/hiby3)$\color{39FF14}{\textsf{entry}}$
-
-[Daily](https://arab.org/click-to-help/palestine/)$\color{39FF14}{\textsf{click}}$
-
-
-꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷
-
-<div align="center">
-
-<img width="344" height="24" alt="Image" src="https://github.com/user-attachments/assets/f6cf524b-0706-44b1-81a3-e94eebfc610c" />
-
-
-<img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/f660ffa9-dd9d-4680-9ef3-deeb80ca2ecd" /><h1 align="center">★ BYI </h1>
-
-•⩊• Call me sakura/spawn ! C+h freely and Int !! ADHD and have a lot of problems with my memory . Am kinda shy soo i wont come and talk to you unless i know u  , Sometimes i well but prop not . ENGLISH ISNT MY FIRST LANGUAGE. tell me if am following bad ppl. LOVE ALL MY FRIENDS X3 . i almost take nothing seriously unsless its very very serious, soo am kinda sillyy ( ˶°ㅁ°) !!
-
-<img width="1280" height="286" alt="Image" src="https://github.com/user-attachments/assets/e6263cc0-8563-49f9-a100-b16dcc408cfa" />
-
-<img width="220" height="344" alt="Image" src="https://github.com/user-attachments/assets/e8a385fe-7da7-4cf8-b40b-8d03c69b0948" />
-
-OK BYE
-
-
+<img width="1280" height="238" alt="Image" src="https://github.com/user-attachments/assets/340bb52e-9639-4a35-9295-69a58405ffa1" />
