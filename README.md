@@ -1,8 +1,8 @@
-<div align="center">
-<img width="1280" height="238" alt="Image" src="https://github.com/user-attachments/assets/6b3676b0-439b-4524-b723-65c5c6a853b7" />
+<p align="center">
 
-<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/5a3505f8-8261-4d98-887c-a2ddbd1f4655" />
+<img width="4096" height="1004" alt="Image" src="https://github.com/user-attachments/assets/ced859a3-3670-40f7-9eda-4653ab072d66" />
 
-[Straw](https://the-batman-lego-movie.straw.page/)$\color{A76250}{\textsf{Page}}$ .ᐟ [ata](https://n0l1voidstar.atabook.org/)$\color{A76250}{\textsf{book}}$ ⸝⸝ [r](https://rentry.co/th3chosenone)$\color{A76250}{\textsf{entry}}$
-
-<img width="1280" height="328" alt="Image" src="https://github.com/user-attachments/assets/e586126b-b7ed-4d60-a45e-0aa16b71b0a4" />
+<img width="2000" height="1370" alt="Image" src="https://github.com/user-attachments/assets/d049fc07-fbe1-43a2-9552-24e84c15cd4a" />
+<p align="center">
+  
+[Straw](https://the-batman-lego-movie.straw.page/)$\color{grey}{\textsf{Page}}$ .ᐟ [ata](https://n0l1voidstar.atabook.org/)$\color{grey}{\textsf{book}}$ ⸝⸝ [r](https://rentry.co/th3chosenone)$\color{grey}{\textsf{entry}}$
